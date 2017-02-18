@@ -1,1 +1,1 @@
-www.netpet.xaa.pl
+www.netpet.ugu.pl
